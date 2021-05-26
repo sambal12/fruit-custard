@@ -1,0 +1,1 @@
+It is a fruit custard recipe.Basically it is a creamy dish which contains various kinds of chopped fruits.We can enjoy it in summers.Commonly fruits used in this recipe are banana, pomegranate,mango,grapes and appple.Fruit custard recipe can be extended by using chocolate syrup and can become favourite for kids.
